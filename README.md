@@ -1,10 +1,10 @@
-Hi im Sterzhan, you can call me sterz!! 🩵
+Hi im Staffan, you can call me Stef (i prefer it)!! ❤️
 
-i am a shy person at first but will warm up!
+i can be a shy person at first but will warm up!
 
-i love drawing, playing guitar, and my persona Sterzhan... <3
+i love drawing, playing guitar, watching things with Eliot, and my persona... <3
 
-im currently building on my regiment called dazed ' disco into a nice community for pony town players!
+im a retired owner to the regiment called dazed ' disco!
 
 im also learning how to draw in new art styles, and adding backgrounds to my art!
 
@@ -16,7 +16,7 @@ my pronouns are he/him but they/them works too!
 
 i do have anxiety, and go semi verbal if my brains overloaded or if im overstimulated, im also pretty sensitive.
 
-i do have ocastional touch Discomfort (OTD) and can go non/semi verbal sometimes, so bare with me on those days!
+I am genderfluid and my pronouns may change!
 
 https://artfight.net/~Anklebiterr
 <!--
